@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MarcioRamosP
+- Tenho 23 anos!
+- gosto de programar
+- Gosto de web 3
